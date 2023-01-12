@@ -1,1 +1,0 @@
-# m017047-gm2.fxsh.tyc.edu.tw.github.io
